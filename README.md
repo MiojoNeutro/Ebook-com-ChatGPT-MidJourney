@@ -11,3 +11,5 @@ PowerPoint Web para criar o Ebook
 https://onedrive.live.com/
 
 O tema do Ebook criado por mim foi Chrono Trigger, um rpg lançado para snes. Fiz uma apresentação dos personagens jogaveis com breves apresentações.
+
+link do Ebook --> https://1drv.ms/p/s!AqY3HYH9xMDlazCk7eAO3idhTvg?e=5ilnYs
